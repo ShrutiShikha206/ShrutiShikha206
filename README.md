@@ -1,1 +1,1 @@
-I'm Shruti, an aspiring data analyst on a journey of continuous learning and skill enhancement. Here, you'll find my projects, where I experiment, analyze data, and apply my growing knowledge. Join me as I explore the world of data and chart my progress. Let's learn together!
+
